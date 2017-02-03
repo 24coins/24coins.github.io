@@ -17,5 +17,5 @@ In the words of Mark Gersmehl:
 
 >treasure them
 
->there's 24 coins in my hand
+>there's 24 coins in my hands
 
